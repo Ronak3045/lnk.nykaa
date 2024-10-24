@@ -1,1 +1,1 @@
-# lnk.nykaa.com-
+# lnk.nykaa
